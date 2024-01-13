@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Daydream-Vers
 - 👀 I’m interestedly aiming to develop 
-- 🌱 I’m currently learning.juat started 
+- 🌱 I’m currently learning.just started 
 - 💞️ I’m looking to collaborate with advisors and teachers 
 - 📫 How to reach me on my email brograca@gmail.com
 - 😄 Pronouns: ... Him..as a Man 
